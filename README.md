@@ -11,3 +11,5 @@ Meu nome é Arthur Silva Vieira
 
 arthursilvavieirapessoal@gmail.com
 arthursilvavieira508@gmail.com
+
+![](https://media1.tenor.com/m/WpeXyK_HQQoAAAAC/mr-bean-thumbs-up.gif)
